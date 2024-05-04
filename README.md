@@ -14,6 +14,10 @@
 **Група:** ПМА-23
 
 Я зацікавлена в різноманітних аспектах інформаційних технологій та аналізу даних.Я завжди в пошуку нових можливостей для вдосконалення своїх навичок та розвитку в обраній галузі.
+
 Подія про Великдень:
 https://calendar.google.com/calendar/event?action=TEMPLATE&tmeid=MnZ1dTYwNmdudHE5c2p0Y2dicmx2c2VzNTQgcGVsZW5vMjgwMUBt&tmsrc=peleno2801%40gmail.com
+
+Посилання на Google Form:
+https://docs.google.com/forms/d/e/1FAIpQLScNWNsnTVeHJ3RWF6-6tlGjb9GF8U7IVqwpwQqyS3GcXemlwg/viewform?usp=sf_link
 
